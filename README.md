@@ -2,7 +2,7 @@
 
 ## Intro
 
-Are you wizard at conjuring epic tales of adventure with your fellow gamers?  Or are you a fresh-faced grunt just getting your boots on the ground?  Either way, come meet with other game masters, soon-to-be game masters, or just the RPG-curious for advice, gaming and convention news, session recaps, and comradery.
+Are you a wizard at conjuring epic tales of adventure with your fellow gamers?  Or are you a fresh-faced grunt just getting your boots on the ground?  Either way, come meet with other game masters, soon-to-be game masters, or just the RPG-curious for advice, gaming and convention news, session recaps, and comradery.
 
 The meetings go from 7pm to 9 on the first Wednesday of every month at [Game Chest](https://www.sfgamechest.com/) in downtown Sioux Falls, South Dakota.
 
